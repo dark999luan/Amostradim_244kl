@@ -1,2 +1,1 @@
-Amostradim_244kl 
-senha:vermelhoevida
+HAHAHHA O JOGO SO ESTA COMEÇANDO!
